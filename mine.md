@@ -1,6 +1,6 @@
 # HELLO!!
 
-Can you dig it?
+Would you do it?
 
-Appearantly tou can...
+Appearantly I would...
 
